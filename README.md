@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @WorldWideBitcoin
 - 👀 I’m interested in AI for Architecture, Crypto
 - 🌱 I’m currently learning AI for Architecture, Crypto
-- 💞️ I’m looking to collaborate on Architecture BIM
+- 💞️ I’m looking to collaborate on Architecture BIM by Japanese, Vietnamese and English
 - 📫 duongthanhhung.com@gmail.com
 - 😄 Pronouns: HungDT
 - ⚡ Fun fact: 2015 Bitcoin 300$ and Now 71000$
